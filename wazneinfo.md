@@ -55,3 +55,10 @@ Bo kiedy ja wchodzę to lepiej\
 Nie stawać tu na mojej drodze\
 Nie mogę tak dłużej i robię ten reload\
 I strzelam z akacza i kolejny zginął
+
+
+
+
+kys :33
+lubie anime dziefczynki i zapieradalsanie w genszin impakt 
+nie mam pojecia jak ale udaoo mi sie to wsszytsko uruchomic no wayy :OO
