@@ -54,4 +54,5 @@ Rzeczy tak wielkie jak sam PashaBiceps sprawdź mnie\
 Bo kiedy ja wchodzę to lepiej\
 Nie stawać tu na mojej drodze\
 Nie mogę tak dłużej i robię ten reload\
-I strzelam z akacza i kolejny zginął
+I strzelam z akacza i kolejny zginął\
+Ja jestem Fagata, seksi cipka spod Konina.
