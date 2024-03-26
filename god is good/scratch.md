@@ -7,7 +7,7 @@ na przekór mym wrogom: \
 wyrównaj przede mną Twoją drogę! \
 <small>10</small> Bo w ustach ich nie ma szczerości, \
 ich serce knuje zasadzki, \
-ich gardło jest grobem otwartym*,  
+ich gardło jest grobem otwartym,  
 a językiem mówią pochlebstwa. 
 
 <small>11</small> Ukarz ich, Boże, \
