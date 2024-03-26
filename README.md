@@ -36,3 +36,8 @@ If you are interested in organizing Heroes III tournament, you can contact us an
 - You can contact us on our [Discord server](https://discord.com/invite/WPXRs5aX89),
 - You can mail us: `support@h3.gg`
 - You also can write to us on our [Facebook](https://www.facebook.com/h3ggg/) or on our streams on [Twitch](https://twitch.tv/h3gg) and [Youtube](https://www.youtube.com/@H3ggtournaments)
+
+
+Patrzcie na wasz plik weszła WASZA STARA zaraz wam wszytskim szlaban da jak nie usuniecie tych anime postów itp.\
+Get to work :).\
+Love mom.
