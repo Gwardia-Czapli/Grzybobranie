@@ -1,4 +1,4 @@
-                                                        "Bombsite A"\
+                                                        "Bombsite A" by Gimpson\
 Teraz Gimpson o CS'ie, czyli wszystko gra\
 Wpierdalam się do mainstreamu jak na Bombsite A\
 I tak tak tak weź sprawdź mnie\
