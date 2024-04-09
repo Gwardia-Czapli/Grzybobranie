@@ -1,0 +1,1 @@
+Jak zrobić tego questa?
