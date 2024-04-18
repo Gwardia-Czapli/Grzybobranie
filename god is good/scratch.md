@@ -21,4 +21,4 @@ ci, którzy imię Twe miłują.
 <small>13.</small> Bo Ty, Panie, będziesz błogosławił sprawiedliwemu:\
 otoczysz go łaską jak tarczą.
 <br><br><br>
-na pierwszym Miejscu Bóg\
+na pierwszym Miejscu Bóg
