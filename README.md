@@ -10,42 +10,10 @@
 ## 🐎 About us:
 
 Jesteśmy NIKIM <3
-We are group of robots, who love Heroes of Might and Magic IV, and want to see it flourish.
-We have organized many Heroes IV tournaments i.e. XX Anniversary Tournament, World Championships, Polish Cup and XXV Anniversary Championships. (actualy some of us never played heroes IV)
-
-## 📋 Our team:
-
-Our team consist of many expierenced Heroes IV tournament organizers, players and template makers, ATM there are 20 of us, some may not be actual members, but I copied that so don't cry:
-
-- Keszu - H3gg leader,
-- Berkas, CzileraInżyniera, Vuko & Zuuzel - our socialmedia admins,
-- Kicferk - H3gg website admin,
-- Kubaryt (probably, cuz we don't know who is he) - H3gg Github profile admin,
-- Vanitasss - H3gg server and bot owner on Discord,
-- Norbiros - aka nikt,
-- Bejker, Fafhrd, KacperOK, Makiki, mvrcxlinv, Niechcic, Ortant, Ponczek, Ravciozo, Regrof, Sokol_53 and Valerin Bizonov, who also do other various things.
-
-## 🌐 Our website
-
-We have created biggest polish platform for organizing Heroes III tournaments.
-Including ongoing tournaments, on our website there are 84 tournaments, where most of them are organized by people outside our team.
-You can check it out https://www.h3.gg/.
-
-If you are interested in organizing Heroes III tournament, you can contact us and we will give you organizer permissions on our website.
 
 ## ✉️ How to reach us:
 
-- You can contact us on our [Discord server](https://discord.com/invite/WPXRs5aX89),
-- You can mail us: `support@h3.gg`
-- You also can write to us on our [Facebook](https://www.facebook.com/h3ggg/) or on our streams on [Twitch](https://twitch.tv/h3gg) and [Youtube](https://www.youtube.com/@H3ggtournaments)
-
-Patrzysz na ten plik
-A TU WCHODZI WASZA STARA\
-otwiera drzew\
-i ZARAZ WAM DAM WSZYSTKIM SZLABAN krzyczy\
-a tu tomek mówi CZEMU\
-a ona BO NIE USUNIECIE TYCH ANIME POSTÓW ITP.\
-Get to work :).\
+Nie ma my nic, żyjemy w piwnicy OOoOOOooOOo!
 
 # UwU czy OwO
 `#SłowoRoku2137`
